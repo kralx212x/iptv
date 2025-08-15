@@ -1,4 +1,5 @@
 <h1>IPTV Satın Al - En Uygun Fiyat Garantisi ile Kaliteli Hizmet</h1>
+
 📺 **Parla Server ile Tanışın!**  
 Hemen IPTV alın, tüm içeriklere anında erişin.  
 Tüm futbol karşılaşmaları ve ücretli platformlar sizi bekliyor!
